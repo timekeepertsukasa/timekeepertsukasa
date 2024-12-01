@@ -5,7 +5,7 @@
   <p align="center">
   $${\color{red}I \space crave \space tsukasa \space tenma}$$
   <p align="center">
-  $${\color{red}Don't \space be \space afraid \space to \space interact \space with ]space me!}$$
+  $${\color{red}Don't \space be \space afraid \space to \space interact \space with /space me!}$$
  <p align="center">
   $${\color{red}I'm \space very \space friendly \space :3}$$
 <p align="center">
