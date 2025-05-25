@@ -1,14 +1,16 @@
-<p align="center">
-aaaaa
-<p align="center">
-  $${\color{red}Living \space the \space simpleton \space life}$$
-<p align="center">
-  $${\color{red}he/it/void}$$
-  <p align="center">
-  $${\color{red}I \space crave \space tsukasa \space tenma}$$
-  <p align="center">
-  $${\color{red}Don't \space be \space afraid \space to \space interact \space with \space me!}$$
- <p align="center">
-  $${\color{red}I'm \space very \space friendly \space :D}$$
-  <p align="center">
-  $${\color{red}though \space I'm \space nervous \space like \space a \space wet \space dog \space 🥺}$$
+# *" We went through so much to get this... "*
+
+![hermes](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExMzkzbTNianBubzE2N3plYzd2NWk1Zm9nOTQ5ZHVsbHdhbHFvd2RvNSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/JpRxJ4s76Y4qEBumzA/giphy.gif)
+
+——
+
+♜ . *NAME: Scoli (pronounced as "Sawlee")*
+
+♝ . *PRONOUNS: He/it/void*
+
+♞ . *C+H are okay with me! SIGN MY ATA KITTENS!!!*
+
+
+
+
+♝ . ***I am mostly free block but still check my carrd thank you ^_^***
