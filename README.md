@@ -1,5 +1,5 @@
 <p align="center">
-<div class="tenor-gif-embed" data-postid="5618845801067567179" data-share-method="host" data-aspect-ratio="1.76596" data-width="100%"><a href="https://tenor.com/view/hermes-epic-epic-the-musical-animatic-gif-5618845801067567179">Hermes Epic GIF</a>from <a href="https://tenor.com/search/hermes-gifs">Hermes GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+how cooked am i
 <p align="center">
   $${\color{red}Living \space the \space simpleton \space life}$$
 <p align="center">
