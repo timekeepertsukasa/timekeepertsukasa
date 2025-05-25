@@ -1,4 +1,6 @@
 <p align="center">
+<div class="tenor-gif-embed" data-postid="5618845801067567179" data-share-method="host" data-aspect-ratio="1.76596" data-width="100%"><a href="https://tenor.com/view/hermes-epic-epic-the-musical-animatic-gif-5618845801067567179">Hermes Epic GIF</a>from <a href="https://tenor.com/search/hermes-gifs">Hermes GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<p align="center">
   $${\color{red}Living \space the \space simpleton \space life}$$
 <p align="center">
   $${\color{red}he/it/void}$$
@@ -10,5 +12,3 @@
   $${\color{red}I'm \space very \space friendly \space :D}$$
   <p align="center">
   $${\color{red}though \space I'm \space nervous \space like \space a \space wet \space dog \space 🥺}$$
-<p align="center">
-  <img src="https://64.media.tumblr.com/7690bdf8e116171923eb5b9eb2f2cc48/b68328bb13001d59-d7/s1280x1920/bc1cb0d9060e52c9e88a33833283a5fffedec3ae.pnj" width="500" height="300"/>
