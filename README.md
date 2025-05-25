@@ -1,5 +1,5 @@
 <p align="center">
-![](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExYWh4cGNydndqY3BjbXc1cnY5ZmNja3ptcWp1eGF1MzUxc2JiNzBqYyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/JpRxJ4s76Y4qEBumzA/giphy.gif)
+aaaaa
 <p align="center">
   $${\color{red}Living \space the \space simpleton \space life}$$
 <p align="center">
