@@ -14,3 +14,7 @@
 
 
 ♝ . ***I am mostly free block but still check my carrd thank you ^_^***
+
+——
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=qf8wyjgiq90rg5pat11f6tua4&cover_image=true&theme=compact&show_offline=true&background_color=121212&interchange=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=qf8wyjgiq90rg5pat11f6tua4&redirect=true)
