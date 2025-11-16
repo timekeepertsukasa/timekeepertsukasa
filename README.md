@@ -1,6 +1,8 @@
 # *" We went through so much to get this... "*
 
-![buildershed](https://media.giphy.com/media/KEiEAaKF3YjslHS4AO/giphy.gif)
+<p align="center">
+  <img src="https://media.giphy.com/media/KEiEAaKF3YjslHS4AO/giphy.gif" alt="animated" />
+</p>
 
 ——
 
