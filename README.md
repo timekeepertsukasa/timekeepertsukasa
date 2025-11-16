@@ -3,9 +3,9 @@
 <p align="center">
   <img src="https://media.giphy.com/media/KEiEAaKF3YjslHS4AO/giphy.gif" alt="animated" />
 </p>
-
+<p align="center">
 ——
-
+</p>
 ♜ . *NAME: Scoli (pronounced as "Sawlee")*
 
 ♝ . *PRONOUNS: He/it/void*
