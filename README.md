@@ -1,5 +1,5 @@
 
-# <center>*" We went through so much to get this... "*</center>
+# *" Remember that one time when I totally pwned you in SFOTH ? "*
 <p align="center">
   <img src="https://media.giphy.com/media/KEiEAaKF3YjslHS4AO/giphy.gif" alt="animated" />
 </p>
