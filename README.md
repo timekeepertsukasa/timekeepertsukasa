@@ -7,13 +7,13 @@
 ——
 </p>
 <p align="center">
-♜ . *NAME: Sol*
+♜ . NAME: Sol
 </p>
 <p align="center">
 ♝ . *PRONOUNS: He/it/void*
 </p>
 <p align="center">
-♞ . *C+H are okay with me! SIGN MY ATA KITTENS!!!*
+♞ . *C+H are okay with me! Sign my atabook!*
 </p>
 
 
@@ -23,5 +23,3 @@
 <p align="center">
 ——
 </p>
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=qf8wyjgiq90rg5pat11f6tua4&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=qf8wyjgiq90rg5pat11f6tua4&redirect=true)
