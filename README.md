@@ -10,11 +10,12 @@
 ♜ . NAME: Sol
 </p>
 <p align="center">
-♝ . *PRONOUNS: He/it/void*
+♝ . PRONOUNS: He/it/void
 </p>
 <p align="center">
-♞ . *C+H are okay with me! Sign my atabook!*
+♞ . C+H are okay with me! Sign my atabook!
 </p>
+
 
 
 <p align="center">
