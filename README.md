@@ -1,6 +1,5 @@
-<center>
-# *" We went through so much to get this... "*
-</center>
+
+# <center>*" We went through so much to get this... "*</center>
 <p align="center">
   <img src="https://media.giphy.com/media/KEiEAaKF3YjslHS4AO/giphy.gif" alt="animated" />
 </p>
