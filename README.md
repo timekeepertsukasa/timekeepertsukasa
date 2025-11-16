@@ -7,7 +7,7 @@
 ——
 </p>
 <p align="center">
-♜ . NAME: Sol
+♜ . NAME: Sol (or any of my old names if you know them, find my pages)
 </p>
 <p align="center">
 ♝ . PRONOUNS: He/it/void
