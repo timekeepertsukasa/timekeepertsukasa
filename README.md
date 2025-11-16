@@ -19,7 +19,7 @@
 
 
 <p align="center">
-♝ . I am mostly free block but still check my carrd thank you ^_^
+♝ . I am mostly free block but feel free to interact!
 </p>
 <p align="center">
 ——
