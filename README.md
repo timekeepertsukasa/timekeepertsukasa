@@ -6,7 +6,8 @@
 
 
 ♜ . NAME: Sol , Matt, Kieran
-♝ . I LOVE PROJECT SEKAI AND IDENTITY V
+♝ . I LOVE PROJECT SEKAI
+AND IDENTITY V
 ♞ . C+H are okay with me! Sign my atabook!
 
 
