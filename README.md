@@ -1,7 +1,5 @@
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=qf8wyjgiq90rg5pat11f6tua4&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=5dfbfe&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
-
+<p align="center">
 ╔═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╗
 
 
@@ -15,4 +13,6 @@ AND IDENTITY V
 ♝ . I am mostly free block but feel free to interact!
 
 ╚═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╝
-
+ <br>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=qf8wyjgiq90rg5pat11f6tua4&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=5dfbfe&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+</p>
