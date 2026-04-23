@@ -1,17 +1,11 @@
 
 <p align="center">
 ╔═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╗
-
-
 ♜ . NAME: Sol , Matt, Kieran
 ♝ . I LOVE PROJECT SEKAI
 AND IDENTITY V
 ♞ . C+H are okay with me! Sign my atabook!
-
-
-
 ♝ . I am mostly free block but feel free to interact!
-
 ╚═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╝
  </p>
  
