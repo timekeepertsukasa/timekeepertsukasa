@@ -1,4 +1,6 @@
-
+ <p align="center">
+<img width="592" height="264" alt="Image" src="https://github.com/user-attachments/assets/92056227-685c-4a99-ab98-8c5b8e71db43" />
+ </p>
 <p align="center">
 ╔═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╗
  </p>
@@ -16,7 +18,4 @@
  </p>
    <p align="center">
 ╚═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╝
- </p>
-  <p align="center">
-<img width="592" height="264" alt="Image" src="https://github.com/user-attachments/assets/92056227-685c-4a99-ab98-8c5b8e71db43" />
  </p>
