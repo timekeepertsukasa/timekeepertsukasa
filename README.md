@@ -1,9 +1,9 @@
  <p align="center">
-<img width="592" height="264" alt="Image" src="https://github.com/user-attachments/assets/92056227-685c-4a99-ab98-8c5b8e71db43" />
- </p>
+ <img width="5628" height="996" alt="Image" src="https://github.com/user-attachments/assets/688f303d-7196-45d2-a6ca-73acdeb5912e" />
+</p>
 <p align="center">
-╔═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╗
- </p>
+ ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊ 
+</p>
  <p align="center">
 ♜ . NAME: Sol , Matt, Kieran
  </p>
@@ -17,5 +17,8 @@
 ♝ . I am mostly free block but feel free to interact!
  </p>
    <p align="center">
-╚═══*.·:·.☽✧    ✦    ✧☾.·:·.*═══╝
+ ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊ 
+ </p>
+  <p align="center">
+<img width="5628" height="1016" alt="Image" src="https://github.com/user-attachments/assets/ad03f3ea-fccb-4dee-9bb8-9443b56f75be" />
  </p>
