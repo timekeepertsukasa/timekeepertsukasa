@@ -1,7 +1,6 @@
  <p align="center">
  <img width="5628" height="996" alt="Image" src="https://github.com/user-attachments/assets/a28e6919-bf6c-4e21-8ea6-a90b689ca2b9" />
 </p>
-[atabook](https://curtaincall.atabook.org) HELP HOW DO I DO THIS
 <p align="center">
  ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊ 
 </p>
